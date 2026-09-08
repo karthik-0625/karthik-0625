@@ -7,7 +7,7 @@ Welcome to my GitHub profile! I'm a passionate learner and problem-solver seekin
 ---
 
 ## 📍 Location
-Mancherial, Telangana, 504301
+Hyderabad, Telangana, 500070
 
 ---
 
